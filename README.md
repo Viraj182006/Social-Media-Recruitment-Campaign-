@@ -1,6 +1,6 @@
 # Social-Media-Recruitment-Campaign-
 
-**Company name**: 
+**Company name**: SNESTRON SYSTEMS PRIVATE LIMITED 
 
 **Name**        : GINKA RAJESH 
 

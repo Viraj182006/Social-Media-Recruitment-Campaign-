@@ -133,3 +133,8 @@ Here's a full **Social Media Recruitment Campaign Plan** designed specifically f
 >
 > \#SnestronTech #HiringNow #JoinTheTeam
 
+**OUTPUT""
+
+![Image](https://github.com/user-attachments/assets/e8ad3e0c-be8e-4534-b9e0-37f3320451df)
+![Image](https://github.com/user-attachments/assets/4f5bfb18-9e52-4722-b537-7b2960298d18)
+
